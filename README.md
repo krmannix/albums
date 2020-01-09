@@ -4,3 +4,4 @@
 * Albert Collins / Cold Snap
 * Free Nationals / Free Nationals
 * Action Bronson / White Bronco
+* Billy Strings / Turmoil & Tinfoil
