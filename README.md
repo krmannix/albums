@@ -7,3 +7,4 @@
 * Billy Strings / Turmoil & Tinfoil
 * Greensky Bluegrass / Shouted, Written Down & Quoted
 * Greensky Bluegrass / If Sorrows Swim
+* Everybody's Favorite / Jimmy Dean
