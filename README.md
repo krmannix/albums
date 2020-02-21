@@ -15,3 +15,4 @@
 * Sylvan LaCue / Apologies in Advance
 * The Districts / A Flourish and a Spoil
 * Ashe / The Rabbit Hole
+* The Werks / Magic
