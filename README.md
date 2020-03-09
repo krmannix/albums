@@ -16,3 +16,4 @@
 * The Districts / A Flourish and a Spoil
 * Ashe / The Rabbit Hole
 * The Werks / Magic
+* [Aminé / ONEPOINTFIVE](https://en.wikipedia.org/wiki/OnePointFive)
