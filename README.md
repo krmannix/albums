@@ -17,3 +17,4 @@
 * Ashe / The Rabbit Hole
 * The Werks / Magic
 * [Aminé / ONEPOINTFIVE](https://en.wikipedia.org/wiki/OnePointFive)
+[* Black Sabbath / Black Sabbath](https://en.wikipedia.org/wiki/Black_Sabbath_(album))
