@@ -20,3 +20,4 @@
 * [Black Sabbath / Black Sabbath](https://en.wikipedia.org/wiki/Black_Sabbath_(album))
 * Kemba / Gilda
 * Goose / Moon Cabin
+* Dan Reeder / This New Century
