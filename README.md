@@ -25,3 +25,4 @@
 * BROS / Vol. 1
 * The California Honeydrops / Spreadin' Honey
 * Window Flowers / Liz Cooper & the Stampede
+* Queen Alone / Lady Wray
