@@ -26,3 +26,4 @@
 * The California Honeydrops / Spreadin' Honey
 * Window Flowers / Liz Cooper & the Stampede
 * Queen Alone / Lady Wray
+* TX Jelly / The Texas Gentleman
