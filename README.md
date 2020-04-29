@@ -27,3 +27,4 @@
 * Window Flowers / Liz Cooper & the Stampede
 * Queen Alone / Lady Wray
 * TX Jelly / The Texas Gentleman
+* Love on Ice / tobi lou
