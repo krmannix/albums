@@ -28,3 +28,4 @@
 * Queen Alone / Lady Wray
 * TX Jelly / The Texas Gentleman
 * Love on Ice / tobi lou
+* The Lil Smokies / The Lil Smokies
