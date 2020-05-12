@@ -31,3 +31,4 @@
 * The Lil Smokies / The Lil Smokies
 * The Raincoats / The Raincoats
 * Bonnie Rait / Give It Up
+* The Jungle Giants / Quiet Ferocity
