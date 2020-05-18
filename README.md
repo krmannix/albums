@@ -32,3 +32,4 @@
 * The Raincoats / The Raincoats
 * Bonnie Rait / Give It Up
 * The Jungle Giants / Quiet Ferocity
+* St. Paul & The Broken Bones / Young Sick Camellia
