@@ -36,3 +36,6 @@
 * KIMOCK / Satellite City
 * [Earl Hooker / 2 Bugs And A Roach](https://en.wikipedia.org/wiki/2_Bugs_and_a_Roach)
 * BROCKHAMPTON / ALL-AMERICAN TRASH
+* Kanye West / ye
+* Gal Costa / Gal Costa
+* Pigeons Playing Ping Pong / Presto
