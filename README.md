@@ -39,3 +39,4 @@
 * Kanye West / ye
 * Gal Costa / Gal Costa
 * Pigeons Playing Ping Pong / Presto
+* Peter Gabriel / Peter Gabriel 3
