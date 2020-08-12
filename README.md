@@ -40,3 +40,4 @@
 * Gal Costa / Gal Costa
 * Pigeons Playing Ping Pong / Presto
 * Peter Gabriel / Peter Gabriel 3
+* Black Sabbath / Master of Reality
