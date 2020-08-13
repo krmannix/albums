@@ -43,3 +43,4 @@
 * Black Sabbath / Master of Reality
 * Black Sabbath / Vol. 4
 * Black Sabbath / Sabbath Bloody Sabbath
+* Hall & Oates / Whole Oats
