@@ -44,3 +44,4 @@
 * Black Sabbath / Vol. 4
 * Black Sabbath / Sabbath Bloody Sabbath
 * Hall & Oates / Whole Oats
+* Big Sean / Detroit 2
