@@ -47,3 +47,4 @@
 * Big Sean / Detroit 2
 * Nas / King's Disease
 * Ari Lennox / Shea Butter Baby
+* Scoundrels / Music From The Arch
