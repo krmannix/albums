@@ -49,3 +49,5 @@
 * Ari Lennox / Shea Butter Baby
 * Scoundrels / Music From The Arch
 * Squirrel Butter / Chestnuts
+* Squirrel Butter / Kiss the Cook
+* River Whyless / Kindness, A Rebel
