@@ -53,3 +53,4 @@
 * River Whyless / Kindness, A Rebel
 * Squirrel Butter / Banjo Clog
 * Common / Let Love
+* Brittany Howard / Jaime
