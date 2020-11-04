@@ -54,3 +54,45 @@
 * Squirrel Butter / Banjo Clog
 * Common / Let Love
 * Brittany Howard / Jaime
+* Kassi Valazza / Dear Dead Days
+* Charley Crockett / Welcome to Hard Times
+* Oliver Tree / Ugly is Beautiful
+* Max Richter / Voyager
+* Built to Spill / There Is No Enemy
+* Yella Beezy / Ain't No Goin' Bacc
+* Pile / Magic Isn't Real
+* AJJ / People Who Can Eat People are the Luckiest People in the World
+* The Microphones / The Glow, Pt. 2
+* Life Without Buildings / Any Other City
+* TOOL / Fear Inoculum
+* Ital Tek / Outland
+* DJDS / Stand Up And Speak
+* Weyes Blood / Titanic Rising
+* Blood Orange / Cupid Deluxe
+* Beach House / Bloom
+* George Clanton / Slide
+* Alex G / House of Sugar
+* Slowdive / Slowdive
+* HAIM / Women In Music Pt. III
+* Black Marble / It's Immaterial
+* Parquet Courts / Wide Awake!
+* Yo La Tengo / Fade
+* The Smashing Pumpkins / Shiny and Oh So Bright, Vol. 1 / LP: No Past. No Future. No Sun.
+* Conan Gray / Kid Krow
+* Maribou State / Kingdoms in Colour
+* Jackson Browne / Running on Empty
+* The Growlers / Natural Affair
+* Jamila Woods / HEAVN
+* Jamila Woods / LEGACY! LEGACY!
+* Bruce Springsteen / Letter To You
+* Waxahatchee / Saint Cloud
+* Bea Miller / elated!
+* Jess Connelly / JCON
+* Ritual Howls / Rendered Armor
+* Photay / Onism
+* Them Are Us Too / Amends
+* Ceremony / In the Spirit World Now
+* Chelsea Jade / Personal Best
+* Choir Boy / Gathering Swans
+* Ariana Grande / Positions
+* Mort Garson / Mother Earth's Plantasia
