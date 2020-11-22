@@ -96,3 +96,7 @@
 * Choir Boy / Gathering Swans
 * Ariana Grande / Positions
 * Mort Garson / Mother Earth's Plantasia
+* Angèle / Brol La Suite
+* 2 Chainz / So Help Me God!
+* Future, Lil Uzi Vert / Pluto x Baby Pluto
+* Chris Stapleton / Starting Over
