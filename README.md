@@ -100,3 +100,7 @@
 * 2 Chainz / So Help Me God!
 * Future, Lil Uzi Vert / Pluto x Baby Pluto
 * Chris Stapleton / Starting Over
+* Bobby McFerrin / Live in Barcelona
+* Madison Cunningham / Who Are You Now
+* Badbadnotgood / Late Night Tales
+* The Land of Rah / An Ancient Evil & A Huge Pumpkin
