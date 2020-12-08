@@ -104,3 +104,15 @@
 * Madison Cunningham / Who Are You Now
 * Badbadnotgood / Late Night Tales
 * The Land of Rah / An Ancient Evil & A Huge Pumpkin
+* Dolly Parton / Hello, I'm Dolly
+* Dolly Parton / Jolene
+* Dolly Parton / My Tennesse Mountain Home
+* The Lumineers / The Lumineers
+* The Lumineers / III
+* Miley Cyrus / Plastic Hearts
+* Dr. Dog / Toothbrush
+* Louie Short / Cherry, Cherry
+* Duran Duran / Duran Duran
+* Deep Purple / Machine Head
+* Deep Purple / Shades of Deep Purple
+* Deep Purple / The Book of Taliesyn
