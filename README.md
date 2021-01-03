@@ -116,3 +116,10 @@
 * Deep Purple / Machine Head
 * Deep Purple / Shades of Deep Purple
 * Deep Purple / The Book of Taliesyn
+* Deep Purple / Deep Purple
+* Led Zeppelin / Led Zeppelin
+* Led Zeppelin / Led Zeppelin II
+* Led Zeppelin / Led Zeppelin III
+* Led Zeppelin / Led Zeppelin IV
+* Etta James / At Last!
+* Etta James / Call My Name
